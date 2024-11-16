@@ -1,4 +1,4 @@
-### 👋 Hi, I’m @prospee66!
+👋 Hi, I’m @prospee66!
 
 I'm a computer science and engineering student with a passion for blending technology and sustainability. 
 
